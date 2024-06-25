@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing, cause I hate coding. 
 - 📫 How to reach me, please never ever contact me. 
 - 😄 Pronouns: Präsident der Schweiz
-- ⚡ Fun fact: Ich hasse es zu coden. 
+- ⚡ Fun fact: Ich hate coding. 
 
 <!---
 heftin/heftin is 
